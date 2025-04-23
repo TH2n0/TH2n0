@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning nuclear physics
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: you can text me on discord, same nick as here
-- 😄 Pronouns: he/him
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: Im dumb
 
 <!---
